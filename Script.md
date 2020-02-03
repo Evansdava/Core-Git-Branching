@@ -22,7 +22,13 @@ He stuck his head in the door, the color of the foliage was intense greens, brow
 The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
-Eliel met the Unicorn King who granted him magic powers.
+Suddenly, the zookeeper appeared, running down the path after Eliel. His nametag said 'Braus.'
+Braus the zookeeper came to a stop in front of the boy, and said "Well what's all this, then?"
+
+Before he could respond, the Unicorn King appeared in a cloud of mist.
+The Unicorn King said "BEHOLD. I AM ALAN, KING OF THE UNICORNS. WELCOME TO MY DOMAIN."
+Both the boy and the zookeeper were lost for words, but felt compelled to drop to one knee.
+The Unicorn King touched each of their shoulders in turn with his horn, and said "YOU HAVE NOW BEEN APPOINTED AS MY KNIGHTS. STAND, SIR BRAUS. STAND, SIR ELIEL. AND PREPARE TO DO MY BIDDING."
 The end.
 
 ## Cast
