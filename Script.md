@@ -29,6 +29,7 @@ Before he could respond, the Unicorn King appeared in a cloud of mist.
 The Unicorn King said "BEHOLD. I AM ALAN, KING OF THE UNICORNS. WELCOME TO MY DOMAIN."
 Both the boy and the zookeeper were lost for words, but felt compelled to drop to one knee.
 The Unicorn King touched each of their shoulders in turn with his horn, and said "YOU HAVE NOW BEEN APPOINTED AS MY KNIGHTS. STAND, SIR BRAUS. STAND, SIR ELIEL. AND PREPARE TO DO MY BIDDING."
+The Friendly Koala, named Mike, waved and said "Welcome to the family"
 The end.
 
 ## Cast
